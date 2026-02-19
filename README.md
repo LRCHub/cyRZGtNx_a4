@@ -1,4 +1,4 @@
-# ＝LOVE（イコールラブ）公式チャンネル – ＝LOVE（イコールラブ）/ Junkies -from ARENA TOUR2025「〜Timeless Tales〜」国立代々木競技場 第一体育館-【LIVE full】
+# =LOVE – ＝LOVE（イコールラブ）/ 絶対アイドル辞めないで -from ARENA TOUR2025「〜Timeless Tales〜」国立代々木競技場 第一体育館-【LIVE full】
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
